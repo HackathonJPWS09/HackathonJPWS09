@@ -9,3 +9,7 @@
 🎱-https://github.com/Sulxana
 <br>
 🎱-https://github.com/JoeGigani
+<br>
+🎱-https://github.com/kordgell
+<br>
+🎱-https://github.com/ATatalashvili
