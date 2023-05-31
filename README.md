@@ -8,6 +8,4 @@
 <br>
 🎱-https://github.com/Sulxana
 <br>
-🎱-https://github.com/Matevarzma
-<br>
-🎱-https://github.com/Teklademetradze
+🎱-https://github.com/JoeGigani
